@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JackeOLantern
+- 👋 Hi, all.I’m here @JackeOLantern
 - 👀 I’m interested into everything
 - 🌱 I’m currently learning a thing
 - 💞️ I’m looking to collaborate on ...
